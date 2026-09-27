@@ -6,7 +6,7 @@ Full) with a Bachelor's Degree in Business Administration (Accounting,
 School of Finance and Banking) and an MBA in Finance (University of Lay
 Adventists of Kigali). I am a registered member of the Institute of
 Certified Public Accountants of Rwanda (ICPAR), Registration No. CPA0489
-(since 2018), holding Practicing Certificate No. PC/CPA 0489/0177.
+(since 2018).
 
 I bring over **13 years of experience** in Public Financial Management,
 business analysis, auditing, and accounting, gained across public
